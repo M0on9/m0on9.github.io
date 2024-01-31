@@ -1,6 +1,3 @@
-
-</head>
-
 ## **Hi, Im Maven**
 Or Luna, or Moon, use whichever. [She/they](https://en.pronouns.page/@M0on9).
 
